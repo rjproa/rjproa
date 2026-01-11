@@ -1,5 +1,5 @@
 # 💫 Acerca de mí:
-🏛️ Actualmente estudio ingeniería de sistemas<br>📚 Soy autodidacta de corazón<br>🛠️ Trabajemos juntos<br>✉️  Escríbeme...<br>
+🏛️ Actualmente estudio ingeniería de sistemas<br>📚 Soy autodidacta de corazón<br>
 
 
 ## 🌐 Redes Sociales:
